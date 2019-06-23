@@ -29,7 +29,7 @@ got will to survive the state (of) (-above-) (aweee)
 up and above
 rats on a race to stop
 rats on a race to stop
-ironic icons spreading the bread
+ironic icons spreading the bread (sparing)  (spearing)
 like it's enough                          (but it's/never enough)
 they want clean slate - fine              (never enough)
 i give them war aye
@@ -50,7 +50,7 @@ got will to survive the state (of) (-above-) (aweee)
 up and above
 rats on a race to stop
 rats on a race to stop
-ironic icons spreading the bread
+ironic icons spreading the bread (sparing) (spearing)
 like it's enough (but it's/never enough)
 they want clean slate - fine (never enough)
 i give them war aye
@@ -84,11 +84,12 @@ got will to survive the state (of) (-above-)
 up and above (up and above)
 rats on a race to stop
 rats on a race to stop
-ironic icons spreading the bread
+ironic icons spreading the bread (sparing) (spearing)
 like it's enough (but it's/never enough)
 they want clean slate - fine (never enough)
 i give them war
 i give them war of diseased
+instead
 
 ```
 
