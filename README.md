@@ -23,7 +23,7 @@ https://www.youtube.com/watch?v=I6dSNmaSOhw
 [CHORUS]
 ayee ayee aye aye
 cut all the scores, they bound to drop
-got will to survive the state (of) (-above-)
+got will to survive the state (of) (-above-) (aweee)
 up and above
 rats on a race to stop
 rats on a race to stop
