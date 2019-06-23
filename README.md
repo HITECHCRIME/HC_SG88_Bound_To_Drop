@@ -19,6 +19,7 @@ https://www.youtube.com/watch?v=I6dSNmaSOhw
 ## Lyrics
 
 ```
+[CHORUS]
 ayee ayee aye aye
 cut all the scores, they bound to drop
 got will to survive the state (of) (-above-)
@@ -31,10 +32,12 @@ they want clean slate - fine (never enough)
 i give them war aye
 aye 
 
+[VERSE]
 x
 x
 x
 
+[CHORUS]
 cut all the scores, they bound to drop
 got will to survive the state (of) (-above-)
 up and above
@@ -46,6 +49,7 @@ they want clean slate - fine (never enough)
 i give them war aye
 war
 
+[VERSE]
 the war of diseased
 i give them war of diseased
 war of diseased
@@ -63,7 +67,7 @@ x
 x
 x
 x
-
+[CHORUS]
 cut all the scores, they bound to drop
 got will to survive the state (of) (-above-)
 up and above (up and above)
