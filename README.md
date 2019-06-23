@@ -1,1 +1,87 @@
-# HC_SG88_Bound_To_Drop
+(cover) ![](57175019_319474918741616_8502199518755923887_n.jpg)
+
+# MOTHNODE_ Bound To Drop
+
+**Listen now:** x
+
+## Project Data
+
+Description.
+
+
+**Title:** x / **Featuring:** x
+
+**Production:** x / **Lyrics:** x
+
+$UICIDEBOY$ X Fat Nick X Pouya Type Beat - "Splitter" (Prod. NetuH) | Hard Trap Instrumental
+https://www.youtube.com/watch?v=I6dSNmaSOhw
+
+## Lyrics
+
+```
+ayee ayee aye aye
+cut all the scores, they bound to drop
+got will to survive the state (of) (-above-)
+up and above
+rats on a race to stop
+rats on a race to stop
+ironic icons spreading the bread
+like it's enough (but it's/never enough)
+they want clean slate - fine (never enough)
+i give them war aye
+aye 
+
+x
+x
+x
+
+cut all the scores, they bound to drop
+got will to survive the state (of) (-above-)
+up and above
+rats on a race to stop
+rats on a race to stop
+ironic icons spreading the bread
+like it's enough (but it's/never enough)
+they want clean slate - fine (never enough)
+i give them war aye
+war
+
+the war of diseased
+i give them war of diseased
+war of diseased
+war of diseased yeah
+
+i give them war of diseased
+war of diseased
+war of diseased (diseased)
+cut all the scores, they bound to drop yeah
+
+aye aye aye 
+aye aye aye aye
+
+x
+x
+x
+x
+
+cut all the scores, they bound to drop
+got will to survive the state (of) (-above-)
+up and above (up and above)
+rats on a race to stop
+rats on a race to stop
+ironic icons spreading the bread
+like it's enough (but it's/never enough)
+they want clean slate - fine (never enough)
+i give them war
+i give them war of diseased
+
+```
+
+## Music Video
+
+
+## Notes
+
+curtains about to fold
+leaderboards
+wondered when y'all come across
