@@ -19,17 +19,19 @@ https://www.youtube.com/watch?v=I6dSNmaSOhw
 ## Lyrics
 
 ```
+hitech crime
+mothnode connected
+ayee ayee
 
 [CHORUS]
-ayee ayee aye aye
 cut all the scores, they bound to drop
 got will to survive the state (of) (-above-) (aweee)
 up and above
 rats on a race to stop
 rats on a race to stop
 ironic icons spreading the bread
-like it's enough (but it's/never enough)
-they want clean slate - fine (never enough)
+like it's enough                          (but it's/never enough)
+they want clean slate - fine              (never enough)
 i give them war aye
 aye 
 
@@ -37,10 +39,11 @@ aye
 x
 x
 x
+curtain's about to fold
 
 [CHORUS]
 cut all the scores, they bound to drop
-got will to survive the state (of) (-above-)
+got will to survive the state (of) (-above-) (aweee)
 up and above
 rats on a race to stop
 rats on a race to stop
@@ -51,14 +54,14 @@ i give them war aye
 war
 
 [VERSE]
-the war of diseased
-i give them war of diseased
+i give them a war of diseased
 war of diseased
 war of diseased yeah
 
-i give them war of diseased
+i give them a war of diseased
 war of diseased
 war of diseased (diseased)
+
 cut all the scores, they bound to drop yeah
 
 aye aye aye 
@@ -68,6 +71,10 @@ x
 x
 x
 x
+
+hitech crime injection
+active
+
 [CHORUS]
 cut all the scores, they bound to drop
 got will to survive the state (of) (-above-)
