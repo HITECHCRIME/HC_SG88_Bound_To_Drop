@@ -34,12 +34,15 @@ like it's enough                          (but it's/never enough)
 they want clean slate - fine              (never enough)
 i give them war aye
 aye 
+ya
 
 [VERSE]
 x
 x
 x
 curtain's about to fold
+within's the old
+within's the old
 
 [CHORUS]
 cut all the scores, they bound to drop
