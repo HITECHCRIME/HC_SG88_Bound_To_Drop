@@ -37,6 +37,9 @@ i give them war aye
 aye 
 ya
 
+each in its place 
+but very few of us know where the journey takes them
+
 [VERSE]
 x
 x
