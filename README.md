@@ -22,6 +22,7 @@ https://www.youtube.com/watch?v=I6dSNmaSOhw
 hitech crime
 mothnode connected
 ayee ayee
+"Every path is predetermined. Everything happens when it must. At the right time. In the right place. As if the world was a carpet made up of an endless network of endless threads."
 
 [CHORUS]
 cut all the scores, they bound to drop
